@@ -1,0 +1,6 @@
+- 👋 Hi, I’m volkan.
+- 👀 I’m interested in video games and football.
+- 🌱 I’m currently learning phyton 3.9
+- 📫 How to reach me : 
+- instagram.com/_volkanbas
+- twitter.com/volkanshady
